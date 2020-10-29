@@ -1,4 +1,4 @@
 # FirstWebsite
 Ibo Gedicht
 
-JUNGE MEIN ERSTES README DOKUMENT WIEE GEIL !!!
+Schaue mal Ibo !! MEINE ERSTE README DATEI !!! Wie coool 🤩
